@@ -1,2 +1,2 @@
 # Hello-World
-Just Something Tutorial told me to do you will see some random Things here so Just don't Mind ok!!
+Just Something Tutorial told me to do you will see some random things here. Lets just mind our own bussiness!!
